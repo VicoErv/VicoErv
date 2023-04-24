@@ -58,7 +58,7 @@ Here are some of my recent projects:
 
 ## 💬 Let's connect
 
-- [LINKEDIN PROFILE](https://www.linkedin.com/in/vico-ervanda-375499140/))
+- [LINKEDIN PROFILE](https://www.linkedin.com/in/vico-ervanda-375499140/)
 
 Feel free to get in touch, I'm always open to discussing new projects, creative ideas, or opportunities to collaborate.
 
